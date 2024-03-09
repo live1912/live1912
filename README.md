@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @live1912
 - 👀 I’m interested in eat person
 - 🌱 I’m currently learning 
-- 💞️ I’m looking to collaborate on dog
+- 💞️ I’m looking to collaborate on mouse
 - 📫 How to reach me you god
 - 😄 Pronouns: live
 - ⚡ Fun fact: I like eat person
