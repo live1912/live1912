@@ -3,8 +3,8 @@
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on dog
 - 📫 How to reach me you god
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- 😄 Pronouns: live
+- ⚡ Fun fact: I like eat person
 
 <!---
 live1912/live1912 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
