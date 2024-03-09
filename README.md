@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @live1912
 - 👀 I’m interested in eat person
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on dog
 - 📫 How to reach me you god
 - 😄 Pronouns: ...
